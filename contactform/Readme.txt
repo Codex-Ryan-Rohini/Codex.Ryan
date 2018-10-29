@@ -1,0 +1,1 @@
+ You can buy it from: https://bootstrapmade.com/buy/?theme=BizPage
